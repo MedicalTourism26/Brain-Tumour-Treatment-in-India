@@ -1,5 +1,5 @@
 Brain Tumour Treatment in India
-(https://heydocta.com/guyanese-brain-tumour-patient-treated-in-india/) includes advanced diagnostic facilities, specialised neurosurgical care, and a range of treatment options tailored to each patient's condition. Patients can consult experienced medical specialists to understand their diagnosis and explore suitable treatment approaches.
+Brain tumour treatment in India includes advanced diagnostic facilities, specialised neurosurgical care, and a range of treatment options tailored to each patient's condition. Patients can consult experienced medical specialists to understand their diagnosis and explore suitable treatment approaches.
 Types of Brain Tumour Treatment
 The recommended treatment depends on the tumour's type, size, location, growth pattern, and the patient's overall health. Treatment options may include:
 •	Brain Tumour Surgery: To remove as much of the tumour as safely possible when surgery is appropriate.
